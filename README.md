@@ -1,2 +1,0 @@
-# Linglingwantstojointhegit.github.io
-welcome 
